@@ -1,2 +1,1 @@
-FhQANTFfVXBunIix v //mypc
-FhQANTffVXBunlix v //C.A PAU
+FhQANTffVXBunlix ve //C.A PAU
